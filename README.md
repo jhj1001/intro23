@@ -1,4 +1,4 @@
-# My Favorite Singers ♥
+# My Favorite Singers ♥ + 보너스 준호 손가락 브론즈
 
 # [![](http://cache.umusic.com/_sites/_prettygooddigital/ladygaga.com/images/og.jpg)](https://www.youtube.com/watch?v=en2D_5TzXCA)
 
